@@ -97,9 +97,9 @@ https://www.buzzfeed.com/br/michelleno/teste-planeje-uma-festa-emprego-dos-sonho
 
 * 💅 [Você consegue adivinhar a cor verdadeira destes esmaltes?](https://www.buzzfeed.com/br/saadmatheus/teste-acertar-cor-verdadeira-esmaltes)
 
-* 🛣 Você consegue ir tão longe quanto a Pabllo Vittar?
+* 🛣 [Você consegue ir tão longe quanto a Pabllo Vittar?](https://www.buzzfeed.com/br/saadmatheus/teste-voce-consegue-ir-tao-longe-quanto-pabllo-vittar)
 
-https://www.buzzfeed.com/br/saadmatheus/teste-voce-consegue-ir-tao-longe-quanto-pabllo-vittar
+* :film_strip: [Você consegue adivinhar o nome do filme a partir da última cena?](https://www.buzzfeed.com/br/benhenry/teste-cinema-cena-final)
 
 
 ## Comidas
